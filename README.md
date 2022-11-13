@@ -1,4 +1,4 @@
-### Hi, I'm Luna!
+### Hi, I'm Luna! 💜
 
 I'm a simple hobbyist who does stuff for video games such as simple mods.
 I'm the creator of [RenHUD](https://github.com/LunaXCBN/RenHud-V2)
