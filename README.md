@@ -1,4 +1,4 @@
 i code things sometimes<br>
 
-[LunaXCBN#1598](https://discord.gg/jcevymcSh6)<br />
+https://lunaxcbn.moe/
 [/id/LunaXCBN](https://steamcommunity.com/id/LunaXCBN/)<br />
